@@ -1,4 +1,5 @@
-# Gaveem, weighing heavily on the trivial, and skimming past the significant.
+# Gaveem
+###### _Weighing heavily on the trivial, and skimming past the significant, sifting through liminal noise for subtleties hidden between what is known and what is felt._
 
 In this era, I'm an **English Language Coach** and **Visual Content Specialist**. I've over 20 years of experience across project management, monitoring & evaluation, photography, graphics design and educational content formulation. 
 
