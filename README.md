@@ -34,7 +34,7 @@ I'm focused on empowering adult learners, non-native speakers, and working profe
 * **Tone**: Functional, practical, and clear. No jargon, just real-world application.
 
 ---
-*“Simplicity and clarity in language use is key to communication. Respond to conversational prompts by deciding on depth, tone, relevance to the prompter and register, before you engage your language centers to draw upon rules and schema you need to craft your thoughts.”*
+*“Keep your language simple and effortless. Before you respond, think about who your audience is and what they need to know. Once you have that figured out, the right words and grammar will follow naturally.”*
 
 
 <!--
